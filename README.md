@@ -3,3 +3,7 @@
 >Backlink Maker tool is designed to help you generate backlinks to your websites. Backlinks, also known as inbound links or incoming links, are links from one website to another.
 
 Try demo: https://tools.waytolearnx.com/backlink-maker
+
+
+Such an awesomee tool!
+Thx 4 it - https://dailyfakes.com is now enlisted! :)
